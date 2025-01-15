@@ -10,3 +10,6 @@ https://docs.google.com/document/d/1H62cdLTkrGmfYncKc5lE0PXyajdY_qZWcO65_4Wy88Y/
 
 My answers for exercise
 https://docs.google.com/document/d/1XM5fu5nKU8AmzsPFvf0KmEAGTOoYb0vb6XdgZaGjogM/edit?usp=sharing
+
+long ah extra notes
+https://docs.google.com/document/d/1NQR6Q2RGrhKP5_wMNFq4snA45Y4N5ckft0i3QrWKUHk/edit?usp=sharing
